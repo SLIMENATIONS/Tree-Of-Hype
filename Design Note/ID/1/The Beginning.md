@@ -7,3 +7,7 @@
   Never Did They Imagine That This Meteorite Going To Change The World Law.
   
      Year 5221 After The Great War, A Meteorite Fallen To The Gioner World.
+
+...
+
+ In A Far Away Island There Is A Village Which Is Special
