@@ -10,4 +10,7 @@
 
 ...
 
- In A Far Away Island There Is A Village Which Is Special
+ In A Far Away Island There Is A Village Which Is Special.
+  How It Is Special?
+   Cause Every Living There Is Not From The Gioner World It Self.
+    It From ...
