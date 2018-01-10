@@ -14,3 +14,15 @@
   How It Is Special?
    Cause Every Living There Is Not From The Gioner World It Self.
     It From ...
+    
+    
+...
+
+ Somewhere far disatnce from the Gioner World, A World Called Earth Is In Brink Of Chaos Until...
+  A Weird Guy Make An Anouncement:
+          
+     For Today, I Here By Declare Today Is French Fried Friday!!
+     And I Want To Tell You All We Had Discoverd A New Planet To 'Conqure'!!
+     Horrah~~!! Horrah~~!!
+     
+  ...
